@@ -1,0 +1,3 @@
+# Aviyal-Recipe
+My Savored Dish....
+Avial (Aviyal) is a semi gravy, keto friendly Kerala side dish. This dish have a variety of vegetables, cooked with Coconut and topped with Coconut Oil. There may be slight variations in the recipe depending on the region. Though its traditionally thick dish, the consistency varies at different parts of Kerala. Also the vegetables used can be altered. 
